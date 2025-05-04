@@ -1,6 +1,17 @@
-## I LOVE MY WIFEEE!
-![image](https://github.com/user-attachments/assets/602442cc-8748-45a7-bd43-ceea1230d636)
-
+## I LOVE MY WIFEEE! JSJJSJSJSJSJS 
+![image](https://github.com/user-attachments/assets/ffa5513d-773b-4f17-aff8-1fb4a5892560)
+ LIKESSS! :: 
+- L + M :3333
+- cats..
+- CHUPA CHUBS
+- CANDYEYEYEEY
+- R/C OFCCC! :3
+![image](https://github.com/user-attachments/assets/3009289f-fc71-45e3-818a-41a4df278582)
+MY DNI LIST ::
+- You support proshipping, maps, or pedos
+- You fake any serious illnesses
+- Are a racist, make racist jokes, dont support BLM.
+  THATS ALL! 
 <!--
 **cH40SSSS/cH40SSSS** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
