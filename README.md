@@ -1,4 +1,5 @@
 ## I LOVE MY WIFEEE!
+![image](https://github.com/user-attachments/assets/602442cc-8748-45a7-bd43-ceea1230d636)
 
 <!--
 **cH40SSSS/cH40SSSS** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
