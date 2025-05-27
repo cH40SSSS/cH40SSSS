@@ -1,4 +1,5 @@
-## ₊𖥔 ℓo͟v͟ꫀ ყoυ ! ۪ ׄ໑୧ ׅ𖥔ׄ  [![image](https://github.com/user-attachments/assets/20ce5435-0302-45f4-b74f-5c674ad64178)](https://pin.it/4GlAC2gR1)
+## ₊𖥔 ℓo͟v͟ꫀ ყoυ ! ۪ ׄ໑୧ ׅ𖥔ׄ  ![image](https://github.com/user-attachments/assets/0f769d9c-dcfc-4498-85ed-81b1522fa112)
+
 
 ![image](https://github.com/user-attachments/assets/ffa5513d-773b-4f17-aff8-1fb4a5892560)
 -   ༘˚⋆𐙚｡⋆𖦹.✧˚               ⋆˚࿔ ᴀꜰᴜᴀ !  𝜗𝜚˚⋆.           ༘˚⋆𐙚｡⋆𖦹.✧˚
